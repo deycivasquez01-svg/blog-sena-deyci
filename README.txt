@@ -1,0 +1,1 @@
+Puedes colocar aquí el logo oficial SENA, mapa mental y documentos si deseas incorporarlos como archivos descargables.
